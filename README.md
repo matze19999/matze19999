@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on a big telegram bot, which will be released in some months. Stay tuned!
 - 💬 Languages: German & English
 - 📱 [OnePlus 7Pro & Surface Pro X Owner](https://www.microsoft.com/en-us/p/surface-pro-x/8vdnrp2m6hhc?activetab=overview)
-- 📫 How to reach me: Just sent me a telegram message!
+- 📫 How to reach me: Just send me a telegram message!
 - ⚡ Fun fact: My biggest dream is to own a Tesla Model 3 Performance 😍
 
 Find me on:
