@@ -13,3 +13,8 @@ Here are some ideas to get you started:
 - 📱 [OnePlus 7Pro & Surface Pro X Owner](https://www.microsoft.com/en-us/p/surface-pro-x/8vdnrp2m6hhc?activetab=overview)
 - 📫 How to reach me: Just sent me a telegram message!
 - ⚡ Fun fact: My biggest dream is to own a Tesla Model 3 Performance 😍
+
+Find me on:
+[Twitter](https://twitter.com/matze19999)
+[Telegram](https://t.me/matze19999)
+[Instagram](https://www.instagram.com/matze19999/)
