@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 💬 Languages: German & English
 - 📱 [OnePlus 7 Pro & Surface Pro X Owner](https://www.microsoft.com/en-us/p/surface-pro-x/8vdnrp2m6hhc?activetab=overview)
 - 📫 How to reach me: Just send me a telegram message!
-- ⚡ Fun fact: I have fulfilled my life dream to own a Tesla Model 3 Performance 😍
+- ⚡ Random fact: I have fulfilled my life dream im september 2020 to own a Tesla Model 3 Performance 😍
 
 Find me on:
 [Twitter](https://twitter.com/matze19999)
