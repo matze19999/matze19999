@@ -15,6 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Random fact: I have fulfilled my life dream im september 2020 to own a Tesla Model 3 Performance 😍
 
 Find me on:
-[Twitter](https://twitter.com/matze19999)
-[Telegram](https://t.me/matze19999)
-[Instagram](https://www.instagram.com/matze19999/)
+[My Website](https://matze19999.de)
