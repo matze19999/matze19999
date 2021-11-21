@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 
 - 📅 I'm 22 years old
 - 💬 Languages: German & English
-- 📱 [OnePlus 9 Pro & Surface Pro X Owner](https://www.microsoft.com/en-us/p/surface-pro-x/8vdnrp2m6hhc?activetab=overview)
+- 📱 [Google Pixel 6 Pro & Surface Pro X Owner](https://www.microsoft.com/en-us/p/surface-pro-x/8vdnrp2m6hhc?activetab=overview)
 - 📫 How to reach me: Just send me a telegram message!
 - ⚡ Random fact: I have fulfilled my life dream in September 2020 to own a Tesla Model 3 Performance 😍
 
