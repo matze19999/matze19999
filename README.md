@@ -7,7 +7,7 @@ I'm a german IT specialist located in beautiful bavaria 🌳
 Here are some ideas to get you started:
 -->
 
-- 📅 I'm 22 years old
+- 📅 I'm 23 years old
 - 💬 Languages: German & English
 - 📱 [Samsung Galaxy Z Fold 3 & Microsoft Surface Pro X Owner](https://www.microsoft.com/en-us/p/surface-pro-x/8vdnrp2m6hhc?activetab=overview)
 - 📫 How to reach me: Just send me a telegram message!
