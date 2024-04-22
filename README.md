@@ -7,12 +7,12 @@ I'm a german IT specialist located in beautiful bavaria 🌳
 Here are some ideas to get you started:
 -->
 
-- 📅 I'm 23 years old
+- 📅 I'm 24 years old
 - 💬 Languages: German & English
-- 📱 [Samsung Galaxy Z Fold 3 & Microsoft Surface Pro X Owner](https://www.microsoft.com/en-us/p/surface-pro-x/8vdnrp2m6hhc?activetab=overview)
+- 📱 [Samsung Galaxy S24 Ultra & Microsoft Surface Pro X Owner](https://www.microsoft.com/en-us/p/surface-pro-x/8vdnrp2m6hhc?activetab=overview)
 - 📫 How to reach me: Just send me a telegram message!
 - ⚡ Random fact: I have fulfilled my life dream in September 2020 to own a Tesla Model 3 Performance 😍
--  💡  I'm on [Fiverr!](https://de.fiverr.com/share/8m9KEo) 
+-  💡  I'm on [Fiverr!]([https://de.fiverr.com/share/8m9KEo](http://www.fiverr.com/s/GDv4m0)) 
 
 Find me on:
 [My Website](https://matze19999.de)
